@@ -1,1 +1,1 @@
-Hasklell Curry
+Hasklell Curry, Kucci Shmukki
